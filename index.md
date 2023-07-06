@@ -7,4 +7,4 @@
 ## 推特账号 twitter.com/MathecoMath
 
 
-### 微 信 公众号：Matheco
+## 微 信 公众号：Matheco
